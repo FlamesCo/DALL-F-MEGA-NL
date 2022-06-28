@@ -1,0 +1,2 @@
+# DALL-F-MEGA-NL
+[C] -Flames LLC - 2022 GNU DALL E
